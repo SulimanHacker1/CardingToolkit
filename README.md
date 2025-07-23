@@ -30,4 +30,4 @@ Fake ID Generator:
 
 More New Updates: 
 
-![Download](https://github.com/user-attachments/assets/66b4a80d-c0fd-4d67-be85-e1fbd676103b)
+✅ website (https://sulimanhacker.blogspot.com/2022/05/carding-toolkit-for-android.html)
